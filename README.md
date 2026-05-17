@@ -1,6 +1,7 @@
-<p align="center"> 
-  <img src="https://media.discordapp.net/attachments/1482895832930975888/1501014985512452246/Untitled101_20260504201734.png?ex=69fa88a4&is=69f93724&hm=31b89dac1408494befd3241a4f637e46d2808d34ede96f12db4eb4159130734d&=&format=webp&quality=lossless&width=496&height=561">
+<img width="1200" height="1200" alt="Untitled108_20260517082802" src="https://github.com/user-attachments/assets/5769a9d7-9bdf-4cf0-926b-b0ce71578343" />
 
-  <p align="center"> 
+<p align="center"> 
+  
+ 
     
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://hiitsmezuko.atabook.org/) ㅤㅤ[prn.cc](https://pronouns.cc/@dragonboyy) ㅤㅤ[guns.lol](https://guns.lol/fireelord) ㅤㅤ[doc](https://docs.google.com/document/d/16RyN9sd44g2YnolfpAS1sIxMth1DM6DSqLkJW6uCvWQ/edit?usp=drivesdk)
